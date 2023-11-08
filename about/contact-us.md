@@ -1,2 +1,2 @@
-# First & Formost
-## beginning with a wimper
+# First & Foremost
+## beginning with a whimper
